@@ -36,3 +36,7 @@ Brute force Screen Password
 Open Screen PIN Manuly Block/Unblock Screen
 Dropper/apk injector / apk Crypter
 And More functions
+
+
+To know more functionality and pricing contact on telegram @SimpleSimp404
+or join telegram channel https://t.me/SpyOffical
